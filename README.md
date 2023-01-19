@@ -1,0 +1,2 @@
+# pakisran-clone
+AFGHANO
